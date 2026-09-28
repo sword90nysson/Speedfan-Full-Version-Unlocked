@@ -1,0 +1,1 @@
+# Speedfan-Full-Version-Unlocked
